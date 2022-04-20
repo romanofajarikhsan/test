@@ -1,0 +1,4 @@
+Ruang Sepi dan Metamorfosis Ide
+Oleh Farid Suryanto, Pengajar di Univ. Ahmad Dahlan
+
+Bukan kesengajaan sebenarnya. Saat itu saya melihat banyak ruang laboratorium kampus yang tidak terpakai. Lab itu masih sangat baru. Tujuh tingkat. Seratus meter panjangnya. Bagian Lab di departemen saya, Sistem Informasi (SI), juga tersisa beberapa. Hanya ruang yang berisi meja kursi dan perangkat komputer yang difungsikan. Alangkah sayang. Saya masih sangat ingat. Tentang diskusi waktu itu dengan pak Imam Azhari (IAZ), Dekan Fakultas Sains dan Teknologi Terapan (FAST), soal definisi lab. Saat itu, sambil ngopi, Pak IAZ menyampaikan gagasan. Bahwa sebaiknya kita definisikan ulang apa itu laboratorium. Jangan kita artikan lab hanya sebagai bentuk fisik. Hanya gedung, ruangan, dan peralatan. Tapi lab adalah sebuah aktivitas untuk melakukan eksplorasi dan penemuan-penemuan. Tidak harus di dalam ruangan. Boleh dimana saja.
